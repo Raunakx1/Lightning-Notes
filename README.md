@@ -1,1 +1,1 @@
-# Lightning-Notes
+# Lightning-Notes AI POWERED
